@@ -28,6 +28,19 @@ Yes. Go nuts.
 
 ### Q: Did you collect any other statistics like demographics and race / gender?
 
-No. I feel there is definitely an interesting analysis in that direction but I feel it would dilute the focus of this work, which is to collect for the sake of collect, until the collection becomes huge enough to be interesting.
+No. I feel there is definitely an interesting analysis in that direction but it
+would dilute the focus of this work, which is to collect for the sake of
+collect, until the collection becomes huge enough to be interesting.
 
-I have tried to vary my sources as to include multiple demographics for the sake for an interesting collection though. People of different colors, ages, and genders were asked to participate.
+I have tried to vary my sources as to include multiple demographics for the
+sake for an interesting collection though. People of different colors, ages,
+and genders, from different countries were asked to participate.
+
+### Q: What's a typical collection like?
+
+I try to find people who look like they have the free time, and I ask my
+question. I have had to explain in English, Chinese, and Spanish on occasions
+to get the message across, it was fun!  I gave them my phone to draw on and
+after they draw the pineapple I offer them to see the other pineapples from
+other participants and reassure them that their drawing is statistically
+unlikely to be the best or the worst, but I loved it all the same.
