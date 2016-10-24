@@ -8,6 +8,9 @@ The participants cannot use colors and I tried to keep the stroke widths constan
 
 The drawings are typically from 10 seconds to 1 minute long
 
+[something?](drawings/sketch-1475005799999.png)
+
+
 ## Q & A:
 
 ### Q: Why are you doing this?
