@@ -21,7 +21,7 @@ about a dozen pineapple pictures for a mockup, but I've taken it to the extreme
 and just kept going for fun.
 
 The long answer is that I want to explore the artistic direction that it
-doesn't matter which "direction / theme" you choose, as long as the magnetude
+doesn't matter which "direction / theme" you choose, as long as the magnitude
 is outrageously huge it's going to be interesting. So drawing pineapples is
 just an arbitrary direction I've chosen to magnify to the extreme.
 
